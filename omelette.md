@@ -12,3 +12,12 @@
 5. **Fold and serve:** Fold the omelette in half. Slide it onto a plate with the help of a silicone spatula.
 
 ![folded omelette picture](https://www.simplyrecipes.com/thmb/wBUmiahXc4z95_GzK8iGYVpDZBs=/750x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/__opt__aboutcom__coeus__resources__content_migration__simply_recipes__uploads__2018__10__HT-Make-an-Omelet-METHOD-1-f5d5efeca8144c9db18c06e39a60b6b2.jpg)
+
+## *Ideas for omelette fillings*
+Here are few winning combinations:
+- Avocado and cheddar.
+- Roasted potatoes and Gruyere.
+- Leftover ratatouille or other vegetable stew, alone or with a little Parmesan.
+- Bacon and cheese, or bacon and potatoes without chesse, chives.
+- Spinach and tomato, with or without feta.
+- Goat cheese and herbs.
