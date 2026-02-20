@@ -21,3 +21,7 @@ Here are few winning combinations:
 - Bacon and cheese, or bacon and potatoes without chesse, chives.
 - Spinach and tomato, with or without feta.
 - Goat cheese and herbs.
+
+Use your imagination and what appeals to you for the filling.
+ 
+![omelete filling picture](https://www.simplyrecipes.com/thmb/9QGpG8qH0VODPhc7sQKj9vN3Cvo=/750x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/__opt__aboutcom__coeus__resources__content_migration__simply_recipes__uploads__2018__10__HT-Make-an-Omelet-LEAD-HORIZONTAL-17cd2e469c4a4ccbbd1273a7cae6425c.jpg)
